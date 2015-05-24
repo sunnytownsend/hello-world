@@ -1,2 +1,2 @@
 # hello-world
-fighting coots and other fowl
+fighting coots and other fowl but never poultry
